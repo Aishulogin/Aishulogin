@@ -1,2 +1,1 @@
-Aishwarya
 Data analyst
